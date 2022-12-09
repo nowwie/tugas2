@@ -1,0 +1,6 @@
+# tugas2![Screenshot (508)](https://user-images.githubusercontent.com/101046849/206687248-b955ab92-68aa-419f-8000-d934e1fb6c81.png)
+![Screenshot (509)](https://user-images.githubusercontent.com/101046849/206687260-8d79efdc-d815-484f-bdaf-bf83e53ab2e2.png)
+![Screenshot (510)](https://user-images.githubusercontent.com/101046849/206687274-9f133af7-7462-4f3f-bef1-152f1381edc6.png)
+![Screenshot (511)](https://user-images.githubusercontent.com/101046849/206687287-ddc98b45-dd67-4bee-8089-fe596d1be88a.png)
+![Screenshot (512)](https://user-images.githubusercontent.com/101046849/206687307-557e1aec-4921-456c-8dcb-d3e0d9380616.png)
+![Screenshot (513)](https://user-images.githubusercontent.com/101046849/206687316-5310e989-0f29-4c75-b8e3-5d4940e404e3.png)
